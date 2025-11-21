@@ -1,0 +1,1 @@
+# Lab-vibe-coding-app-financas
